@@ -2,8 +2,7 @@
 ## A beautiful Chinese woman  
 
 https://github.com/lizhipeng789/T2PE/assets/58614701/346c33c8-c1e8-4b41-8dfb-a5cc462fd689
-
-
+![Image text](https://github.com/lizhipeng789/T2PE/blob/main/20231217183435.gif)  
 https://github.com/lizhipeng789/T2PE/blob/main/ss/1.mp4
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/gif/A%20beautiful%20Chinese%20woman.gif)  
 ## A cute girl   
