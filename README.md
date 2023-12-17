@@ -5,7 +5,7 @@ A cute girl
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/gif/A%20cute%20girl.gif)  
 A gorgeous girl white hair  
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/gif/A%20gorgeous%20girl%20white%20hair.gif)  
-A handsome man, kind eyes, black hair, man bun 
+A handsome man, kind eyes, black hair, man bun   
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/gif/A%20handsome%20man%2C%20kind%20eyes%2C%20black%20hair%2C%20man%20bun.gif)  
 Taylor Swift  
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/gif/Taylor%20Swift.gif))  
