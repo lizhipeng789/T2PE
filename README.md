@@ -13,7 +13,7 @@
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/A%20rugged%20man%2C%20short%20hair%2C%20red%20hair%2C%20high%20nose%20bridge.gif)  
 ## A sunny boy  
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/A%20sunny%20boy.gif)  
-## Beyonc  
+## Beyoncé  
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/Beyonc%C3%A9.gif)  
 ## Leonardo DiCaprio  
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/Leonardo%20DiCaprio.gif)  
