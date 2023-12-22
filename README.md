@@ -18,4 +18,4 @@
 ## Leonardo DiCaprio  
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/Leonardo%20DiCaprio.gif)  
 ## Innocent and  cute little loli  
-![Image text]()  
+![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/Innocent%20and%20%20cute%20little%20loli.gif)  
