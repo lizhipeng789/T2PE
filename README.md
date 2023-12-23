@@ -2,7 +2,7 @@
 ## A beautiful Chinese woman  
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/A_beautiful_Chinese_woman.gif)  
 ## A cute girl   
-![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/A%20cute%20girl.gif)  
+![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/A%20cute%20girl.gif) ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/png/A%20cute%20girl_X%3D0.000%20Y%3D0.000%20Z%3D0.000.png)  
 ## A gorgeous girl white hair  
 ![Image text](https://github.com/lizhipeng789/T2PE/blob/main/GIF_/A%20gorgeous%20girl%20white%20hair.gif)  
 ## A handsome man, kind eyes, black hair, man bun   
