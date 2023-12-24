@@ -18,7 +18,7 @@
 ## Innocent and  cute little loli  
 <img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Innocent%20and%20%20cute%20little%20loli.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Innocent%20and%20%20cute%20little%20loli%200.png" width="500px"> 
 ## A_charming_woman  
-<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Innocent%20and%20%20cute%20little%20loli.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Innocent%20and%20%20cute%20little%20loli%200.png" width="500px"> 
+<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/A_charming_woman.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/A_charming_woman%205.png" width="500px"> 
 ## A_voluptuous_Asian_woman_Inference  
 <img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/A_voluptuous_Asian_woman_Inference.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/A_voluptuous_Asian_woman_Inference%205.png" width="500px"> 
 ## Jackie Chan  
