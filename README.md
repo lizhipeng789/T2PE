@@ -20,10 +20,10 @@
 ## A_charming_woman  
 <img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Innocent%20and%20%20cute%20little%20loli.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Innocent%20and%20%20cute%20little%20loli%200.png" width="500px"> 
 ## A_voluptuous_Asian_woman_Inference  
-<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Innocent%20and%20%20cute%20little%20loli.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Innocent%20and%20%20cute%20little%20loli%200.png" width="500px"> 
+<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/A_voluptuous_Asian_woman_Inference.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/A_voluptuous_Asian_woman_Inference%205.png" width="500px"> 
 ## Jackie Chan  
-<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Innocent%20and%20%20cute%20little%20loli.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Innocent%20and%20%20cute%20little%20loli%200.png" width="500px"> 
+<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Jackie%20Chan.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Jackie%20Chan%209.png" width="500px"> 
 ## Scarlett Johansson  
-<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Innocent%20and%20%20cute%20little%20loli.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Innocent%20and%20%20cute%20little%20loli%200.png" width="500px"> 
+<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Scarlett%20Johansson.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Scarlett%20Johansson%2017.png" width="500px"> 
 ## A_cute_little_loli  
-<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/Innocent%20and%20%20cute%20little%20loli.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/Innocent%20and%20%20cute%20little%20loli%200.png" width="500px">
+<img src="https://github.com/lizhipeng789/T2PE/blob/main/gif3/A_cute_little_loli.gif" width="500px"><img src="https://github.com/lizhipeng789/T2PE/blob/main/png2/A_cute_little_loli%209.png" width="500px">
